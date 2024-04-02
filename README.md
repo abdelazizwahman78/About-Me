@@ -4,6 +4,12 @@
 - 🚀 Outside of work, you can find me experimenting with the latest design trends, exploring new coding techniques, or diving into creative side projects. I'm always eager to learn and grow in this ever-evolving industry.
 - 📫 Let's connect and collaborate on exciting projects! Feel free to reach out to me here on GitHub or connect with me on Whatsapp: abdelazizwhman81@gmail.com , +201011043078
 - 😄 Pronouns: He, Him
+- All Contacts:
+Behance: https://www.behance.net/abdelazizwahman
+Linked In: https://www.linkedin.com/in/abdelaziz-wahman-575a6419a/
+Facebook: https://www.facebook.com/profile.php?id=100010621841348
+Whatsapp: +201011043078
+E-mail: abdelazizwhman81@gmail.com
 
 <!---
 abdelazizwahman78/abdelazizwahman78 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
